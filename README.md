@@ -1,0 +1,2 @@
+# QLDA2026
+Nguyen Minh Thuan 2451160833
